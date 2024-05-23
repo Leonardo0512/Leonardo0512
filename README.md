@@ -10,3 +10,6 @@ MEU NOME LEONARDO LINDO
 
 lo295887@gmail.com
 leo 
+
+
+![](https://media1.tenor.com/m/JM8Y-dsP4TEAAAAC/ace.gif)
